@@ -2,7 +2,7 @@
 Senior Software Engineer Position 
 
 Job Description
-Open to Remote
+Open to Remote, Open to Visa Sponsorship
 APPLY HERE: https://tinyurl.com/vn3mmbew  
 WWE is an integrated media organization and recognized leader in global entertainment! WWE’s PG, family-friendly programming is broadcast in more than 180 countries and 25 languages and reaches more than 800+ million homes worldwide! WWE has more than 1 billion social media followers. WWE is the #1 sports channel on YouTube, and the #2 most viewed channel in the world overall.
 
